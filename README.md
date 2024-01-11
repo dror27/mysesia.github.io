@@ -11,6 +11,12 @@ Things I'm learning about Valsesia that I find worth recording and/or sharing.
 - Avv. Mauro Pigino (Lawyer, Vercelli) mauropg@gmail.com +393924466167
 - Avv. Anna Astori Via C. Durio 16, 13019 Varallo studiolegale@astori.eu +39016352476
 
+## Tourism
+- [Monte Rosa Valsesia - Italian Alps](https://www.monterosavalsesia.com/)
+- [Varallo trekking itinerary](https://www.monterosavalsesia.com/itinerari_trekking/Varallo.pdf) - [other areas](https://www.monterosavalsesia.com/valsesia_trekking_itinerari/en/)
+- [Scopa trekking irinerary](https://www.monterosavalsesia.com/itinerari_trekking/Scopa.pdf)
+- [Sentieri dell'Arte - Paths of Art](https://www.caivarallo.com/risorse/sentieri-arte/)
+
 
 
 
