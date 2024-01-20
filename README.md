@@ -5,6 +5,7 @@ Things I'm learning about Valsesia that I find worth recording and/or sharing.
 - [Doulingo](https://www.duolingo.com/learn)
 - [Italian for Beginners (podcast - apple)](https://podcasts.apple.com/gb/podcast/italian-for-beginners/id986153424)
 - [Dictionary](https://www.treccani.it/enciclopedia/)
+- [Conjugation](https://conjugator.reverso.net/conjugation-italian.html)
 
 ## Legal
 - [Approved Translators (Israel)](https://www.ciaoitaly.co.il/students-in-italy/info/list-translators-italian-embassy/)
