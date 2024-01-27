@@ -6,6 +6,7 @@ Things I'm learning about Valsesia that I find worth recording and/or sharing.
 - [Italian for Beginners (podcast - apple)](https://podcasts.apple.com/gb/podcast/italian-for-beginners/id986153424)
 - [Dictionary](https://www.treccani.it/enciclopedia/)
 - [Conjugation](https://conjugator.reverso.net/conjugation-italian.html)
+- [9 Short Stories to Learn Italian (for Beginners)](https://lingopie.com/blog/9-short-stories-to-learn-italian-for-beginners/)
 
 ## Legal
 - [Approved Translators (Israel)](https://www.ciaoitaly.co.il/students-in-italy/info/list-translators-italian-embassy/)
@@ -19,6 +20,9 @@ Things I'm learning about Valsesia that I find worth recording and/or sharing.
 - [Scopa trekking irinerary](https://www.monterosavalsesia.com/itinerari_trekking/Scopa.pdf)
 - [Sentieri dell'Arte - Paths of Art](https://www.caivarallo.com/risorse/sentieri-arte/)
 - [Scopello, Month by Month, by Bard](https://docs.google.com/document/d/1OBX0AjZVrveHbBqN93jkBe_h8qxbb_kq39oqrgtOE58/edit?usp=sharing)
+
+## Videos
+- [Small Masonry Stove](https://www.youtube.com/watch?v=xEpUIPXiDe0&ab_channel=Mr.Chickadee)
 
 
 
