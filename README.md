@@ -26,8 +26,7 @@ Things I'm learning about Valsesia that I find worth recording and/or sharing.
 
 ## Wwalking
 - [WALK THE TOUR DE MONTE ROSA IN SWITZERLAND AND ITALY](https://www.wildspiritadventures.com/walk-the-tour-de-monte-rosa-in-switzerland-and-italy/#Itinerary)
-
-
+- [Rima - Alagna Valsesia | Great Walser Trail](https://www.outdooractive.com/en/route/pilgrim-walk/rima-san-giuseppe/rima-alagna-valsesia-great-walser-trail/68153796/)
 
 
 
