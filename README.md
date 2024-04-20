@@ -24,6 +24,9 @@ Things I'm learning about Valsesia that I find worth recording and/or sharing.
 ## Videos
 - [Small Masonry Stove](https://www.youtube.com/watch?v=xEpUIPXiDe0&ab_channel=Mr.Chickadee)
 
+## Wwalking
+- [WALK THE TOUR DE MONTE ROSA IN SWITZERLAND AND ITALY](https://www.wildspiritadventures.com/walk-the-tour-de-monte-rosa-in-switzerland-and-italy/#Itinerary)
+
 
 
 
