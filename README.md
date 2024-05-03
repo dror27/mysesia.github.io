@@ -31,6 +31,8 @@ Things I'm learning about Valsesia that I find worth recording and/or sharing.
 - [Hiking GTA / Italy](https://www.youtube.com/watch?v=sTnrutKwUvY&list=PLMR613Zvjf7KchSex2haZ9Trf0dFbs1nd)
 - [Valmala (Denti di) da Scopa, traversata a Isola
 ](https://www.gulliver.it/itinerari/valmala-denti-di-traversata-da-scopa-a-isola/)
+- [Ventolaro (Monte) from Scopa to Bocchetta di Scotto
+Ventolaro](https://www.gulliver.it/itinerari/ventolaro-monte-da-scopa-per-la-bocchetta-di-scotto/)
 
 
 
