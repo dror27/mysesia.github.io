@@ -33,6 +33,6 @@ Things I'm learning about Valsesia that I find worth recording and/or sharing.
 ](https://www.gulliver.it/itinerari/valmala-denti-di-traversata-da-scopa-a-isola/)
 - [Ventolaro (Monte) from Scopa to Bocchetta di Scotto
 Ventolaro](https://www.gulliver.it/itinerari/ventolaro-monte-da-scopa-per-la-bocchetta-di-scotto/)
-
+- [Tour Monte Rosa - Matterhorn](https://www.zermatt.ch/en/Media/Planning-hikes-tours/Tour-Monte-Rosa-Matterhorn)
 
 
